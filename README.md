@@ -1,1 +1,1 @@
-# manoj652.potraitsimple.io
+# manoj652potraitsimple.io
